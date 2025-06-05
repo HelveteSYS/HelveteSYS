@@ -1,16 +1,20 @@
-## Hi there 👋
+## I HATE!!!!!!!!!!!!!!!
+Okay so hi I'm Andreas and I'm okay. I do enjoy roleplaying btw so yes!
 
-<!--
-**TheWrongClone/TheWrongClone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+I'm a system, every pony is a good representation of who's fronting
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+We have a Matesprit already, don't flirt with any of us because we snitch and aren't interested in other quads
+
+
+You can int in whispers and such, or non whispers, just beware we're always with Boyfie and his Sisterrrr!
+
+
+FANDOM LIST WOOOO: Forsaken, Eddsworld, Homestuck, AOM / COF, etc (I forgot some loll)
+
+Our alters are pretty chill just be nice to them
+
+DNI LIST: TCC, Zero Day, Pedos, Zoos, Misogynists, etc is on the full dni list on my Strawpage
+
+I main Shedletsky, 007n7, Taph, and Elliot on Forsaken btw
