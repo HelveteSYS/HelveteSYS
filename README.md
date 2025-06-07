@@ -11,6 +11,9 @@ We have a Matesprit already, don't flirt with any of us because we snitch and ar
 You can int in whispers and such, or non whispers, just beware we're always with Boyfie and his Sisterrrr!
 
 
+If you make my boyfriend or his sister uncomfortable, you're done. NOT sorry
+
+
 FANDOM LIST WOOOO: Forsaken, Eddsworld, Homestuck, AOM / COF, etc (I forgot some loll)
 
 Our alters are pretty chill just be nice to them
