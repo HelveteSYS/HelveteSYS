@@ -1,23 +1,22 @@
-## I HATE!!!!!!!!!!!!!!!
-Okay so hi I'm Andreas and I'm okay. I do enjoy roleplaying btw so yes!
-
+## Man.
+As you've seen, I'm the wlverine/logan alter. I run this shit now, so hi. If you call me James/Jimmy I'll cause you bodily harm, I'm just not a big fan of that.
 
 I'm a system, every pony is a good representation of who's fronting
 
 
-We have a Matesprit already, don't flirt with any of us because we snitch and aren't interested in other quads
+We have a boyfriend. FLirt with us and you're blocked, flirt with him and we hate you and want you gone.
 
 
-You can int in whispers and such, or non whispers, just beware we're always with Boyfie and his Sisterrrr!
+You can int in whispers and such, or non whispers, just beware we're usually with our boyfriend.
 
 
-If you make my boyfriend or his sister uncomfortable, you're done. NOT sorry
+If you make my boyfriend uncomfortable, you're blocked.
 
 
-FANDOM LIST WOOOO: Forsaken, Eddsworld, Homestuck, AOM / COF, etc (I forgot some loll)
+Fandoms can be figured out by talking to us, too many to list. Just know theres no proshit fandoms or anything.
 
 Our alters are pretty chill just be nice to them
 
-DNI LIST: TCC, Zero Day, Pedos, Zoos, Misogynists, etc is on the full dni list on my Strawpage
+DNI LIST: TCC, Zero Day, Pedos, Zoos, Misogynists, more on our new strawpage at some point.
 
-I main Shedletsky, 007n7, Taph, and Elliot on Forsaken btw
+IF you're a sys Sabretooth, you can int. If you aren't, no thanks. The same for Jean. 
