@@ -1,5 +1,5 @@
 ## Man.
-As you've seen, I'm the wlverine/logan alter. I run this shit now, so hi. If you call me James/Jimmy I'll cause you bodily harm, I'm just not a big fan of that.
+As you've seen, I'm the wolverine/logan alter. I run this shit now, so hi. If you call me James/Jimmy I'll cause you bodily harm, I'm just not a big fan of that.
 
 I'm a system, every pony is a good representation of who's fronting
 
