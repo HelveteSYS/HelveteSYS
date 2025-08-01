@@ -1,22 +1,27 @@
 ## Man.
-As you've seen, I'm the wolverine/logan alter. I run this shit now, so hi. If you call me James/Jimmy I'll cause you bodily harm, I'm just not a big fan of that.
 
-I'm a system, every pony is a good representation of who's fronting
-
-
-We have a boyfriend. FLirt with us and you're blocked, flirt with him and we hate you and want you gone.
+we're pretty cool so hi lmfao
 
 
-You can int in whispers and such, or non whispers, just beware we're usually with our boyfriend.
+so our dni is on our patreon (might put art there someday)
 
 
-If you make my boyfriend uncomfortable, you're blocked.
+taken romantically (we dont do the thing where alters can date other people, we all date the same man) soo
 
 
-Fandoms can be figured out by talking to us, too many to list. Just know theres no proshit fandoms or anything.
+don't flirt with us or our boyfriend i'll put you on 4chan (j)
 
-Our alters are pretty chill just be nice to them
+a system obv
 
-DNI LIST: TCC, Zero Day, Pedos, Zoos, Misogynists, more on our new strawpage at some point.
 
-IF you're a sys Sabretooth, you can int. If you aren't, no thanks. The same for Jean. 
+heres our big mental illness list (diagnosed) so dont come for us;
+
+
+
+bpd, autism, did, some form of schizophrenia, c-ptsd, some tic disorder, possible social anxiety so dont quote me on that
+
+
+cupidzarrow69 dni kys
+
+
+alright so thats pretty much it, i'll make an int/bmf thing l8r lulz, unless you just..ask us? and then i'll like, do things
