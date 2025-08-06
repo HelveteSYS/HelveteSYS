@@ -18,7 +18,7 @@ heres our big mental illness list (diagnosed) so dont come for us;
 
 
 
-bpd, autism, did, some form of schizophrenia, c-ptsd, some tic disorder, possible social anxiety so dont quote me on that
+bpd, autism, did, some form of schizophrenia, c-ptsd, ocd, bipolar 2, some tic disorder, possible social anxiety so dont quote me on that
 
 
 cupidzarrow69 dni kys
