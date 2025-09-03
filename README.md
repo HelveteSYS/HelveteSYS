@@ -10,7 +10,7 @@ we're 18, if you're under 15 (15 is thin ice) dni please !
 
 so then you guys dont crucify us, we have:
 
-Autism, DID, BPD, OCD, symptoms that align with cotard's, and POSSIBLY paranoid schizophrenia, so don't be surprised if we show symptoms of our disorders that we do infact have!
+Autism, DID, BPD, OCD, C-PTSD, symptoms that align with cotard's, and POSSIBLY paranoid schizophrenia, so don't be surprised if we show symptoms of our disorders that we do infact have!
 
 we like a lot of fandoms so like,, i'll list our main ones because theyre SO cool trust.
 
