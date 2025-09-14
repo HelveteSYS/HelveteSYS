@@ -14,6 +14,6 @@ Autism, DID, BPD, OCD, C-PTSD, symptoms that align with cotard's, and POSSIBLY p
 
 we like a lot of fandoms so like,, i'll list our main ones because theyre SO cool trust.
 
-Postal, Duke Nukem, Hatred (2015), NFRTG, MLP, resident evil, silent hill, and more but they arent as big
+Postal, Duke Nukem, Hatred (2015), NFRTG, MLP, resident evil, silent hill, spidergang, manhunt, and more but they arent as big
 
 warning : Homestuck is thin ice/if we interact first, due it being a special interest, we do have homestuck alters but it is the same, only if they int first can you int with them (if you're trying to be completely friends, that is, also don't rp with us or run up to us if we have a "small fandom" pony you recognize, heavy chances its an alter and you're gonna make them unhappy, whispers are appreciated when interacting for the first time !!!) and we are a recovering hypersexual system so if we make freaky jokes thats why, and ask us to stop if you dislike it!!!
