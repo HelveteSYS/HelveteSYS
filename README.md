@@ -1,6 +1,6 @@
 ## .
 
-before you go to our patreon to read our dni, if you are an endo/willow/polymind/non traumagenic "system" dni immediatley, the same if you're profiction/proship/darkship/comship, cope better
+hi so like our patreon is gonna be edited, basic dni, dni endos/willows/polymind, pro/dark/comshippers, and zero day/elephant 2003 fans k thank you
 
 we're taken 
 
