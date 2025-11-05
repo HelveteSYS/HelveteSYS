@@ -4,6 +4,8 @@ hi so like our patreon is gonna be edited, basic dni, dni endos/willows/polymind
 
 we can be mean sometimes without meaning it, so i am infact sorry if we're rude w/o reason
 
+we are looking for friends so after an amount of time knowing you on pt we'll orobably add you on discord
+
 we're 18, if you're under 15 (15 is thin ice) dni please !
 
 we have an amount of disorders n stuff so heres those i guess : bpd, ocd, did, autism, possible schizophrenia 
