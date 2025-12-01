@@ -1,15 +1,19 @@
 ## .
 
-hi so like our patreon is gonna be edited, basic dni, dni endos/willows/polymind, pro/dark/comshippers, and zero day/elephant 2003 fans k thank you
+dni proship/profic/darkship/anything like that please ty, dni willowgenics/endogenics/polyminds/fictkins that use the term source memory instead of finding a different term/irls, zero day and elephant 2003 fans
 
-we can be mean sometimes without meaning it, so i am infact sorry if we're rude w/o reason
+we're 18, 15 and over can be our actual friends, but anything below that no thanks, it isn't anything against you its just what we need to be comfortable
 
-we are looking for friends so after an amount of time knowing you on pt we'll orobably add you on discord
+we looove black metal, ask us about the TRUE story of Mayhem because Euronymous and Dead are always bastardized by Hellhammer, Necrobutcher, and Varg's lies
 
-we're 18, if you're under 15 (15 is thin ice) dni please !
+we're a DID system, all of our ponies are alters at this point
 
-we have an amount of disorders n stuff so heres those i guess : bpd, ocd, did, autism, possible schizophrenia 
+dooon't be weird to us (includes sexualizing us, flirting out of nowhere if we havent known you very long, trying to roleplay with us), because some of us hate that to bits
 
-we like a lot of fandoms so like,, i'll list our main ones because theyre SO cool trust.
+we like ATHF, Metalocalypse, NFRTG, Postal, Hatred (2015), Manhunt, LOZ, and more
 
-Postal, Hatred (2015), NFRTG, Spider Gang, Supernatural, LOZ, a lot more so ask,,
+we're not looking for any partner right now, so don't become friends just to look for a partner
+
+bpd, ocd, autism, DID, good luck soldiers!
+
+we're nicer than we seem we're just really awkward 
