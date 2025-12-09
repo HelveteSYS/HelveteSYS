@@ -17,3 +17,5 @@ we're not looking for any partner right now, so don't become friends just to loo
 bpd, ocd, autism, DID, good luck soldiers!
 
 we're nicer than we seem we're just really awkward 
+
+scotty and his friends dni, if you want to int so all of us can work issues out (unlikely) then you know where to find us 
