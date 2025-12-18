@@ -18,4 +18,7 @@ bpd, ocd, autism, DID, good luck soldiers!
 
 we're nicer than we seem we're just really awkward 
 
-scotty and his friends dni, if you want to int so all of us can work issues out (unlikely) then you know where to find us 
+btw
+
+our persecutor blocked you because you were kinda really shitty lulz, if you ever wanna work shit out, you arent blocked on discord anymore
+you know where to find us.
