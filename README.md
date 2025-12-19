@@ -43,4 +43,5 @@ i'll be on at late hours probably, my sleep schedule is wacky
 btw
 
 our persecutor blocked you because you were kinda really shitty lulz, if you ever wanna work shit out, you arent blocked on discord anymore
+
 you know where to find us.
