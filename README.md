@@ -39,9 +39,3 @@ i do have a life so likeee, don't be pissy if i can't reply 24/7! i'll reply whe
 i'll be on at late hours probably, my sleep schedule is wacky
 
 ----------------------------------------------------------------------------------------------------------------------------------------------
-
-btw
-
-our persecutor blocked you because you were kinda really shitty lulz, if you ever wanna work shit out, you arent blocked on discord anymore
-
-you know where to find us.
