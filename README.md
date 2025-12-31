@@ -6,8 +6,8 @@ I'm trying to get better at making friends and keep talking to them, so theres t
 
 -----------------------------------
 
-               DNI
-TCC (including zero day and elephant 2003 and duck the carbine massacre), Proshippers/Comshippers/Darkshippers, Endogenic/Willowgenic/Polymind/Any of the sorts, Any of my old friends (if you found this you're wweeiuirddd), if you treat systems like a Singlet for 0 reason, TCOAAL, Homestuck fans (unless I int first), Helluva and Hazbin fans (unless i already know you), Overly clingy within like 2 weeks of us knowing (To the point you get mad if I hangout with irl friends), a good amount of anime fans (but if I think you're ok I won't block you)
+
+DNI; zero day and elephant 2003 and duck the carbine massacre), Proshippers/Comshippers/Darkshippers, Endogenic/Willowgenic/Polymind/Any of the sorts, Any of my old friends (if you found this you're wweeiuirddd), if you treat systems like a Singlet for 0 reason, TCOAAL, Homestuck fans (unless I int first), Helluva and Hazbin fans (unless i already know you), Overly clingy within like 2 weeks of us knowing (To the point you get mad if I hangout with irl friends), a good amount of anime fans (but if I think you're ok I won't block you)
 
 If you ask for help with dyslexia don't get mad at me for helping
 
