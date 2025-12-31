@@ -1,5 +1,6 @@
 ## you could read this
 
+
 I'm 18, under 15 DNI
 
 I'm trying to get better at making friends and keep talking to them, so theres that
